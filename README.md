@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ikerlopezpez@gmail.com
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: Cual es el colmo de un payaso? Que todo el mundo se lo tome en serio   ajjajaja     pedro sanchez me as arruinado la vida 
+- ⚡ Fun fact: ¿Cuál es el colmo de un marinero? Ahogarse en un vaso de agua   ajjajaja   pedro sanchez me as arruinado la vida 
 
 <!---
 Kachupii/Kachupii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
